@@ -1,1 +1,0 @@
-# sinok.github.io
